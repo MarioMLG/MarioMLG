@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning nothing!
 - 💞️ I’m looking to collaborate on projects I have, or that friends include me in.
 - 📫 How to reach me: Discord... that's about it
-- 😄 Pronouns: he/him
+- 😄 Pronouns: they/them
 - ⚡ Fun fact: Yes
 
 <!---
